@@ -1,4 +1,4 @@
-# induction-final
+# induction- Soham sood (cse)
 # 🎓 Induction Journey – GNDEC Ludhiana  
 
 ## 📅 Day 1 – Starting of the New Journey  
