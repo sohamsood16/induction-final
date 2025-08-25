@@ -136,3 +136,41 @@ The day ended on a **hopeful note**, inspiring us to approach the coming days wi
 The **first four days** of induction at GNDEC were filled with spirituality, motivation, knowledge, and values. From blessings in the Gurudwara to expert lectures and inspiring stories, each moment strengthened my belief that this journey will not just shape my career but also my character.  
 
 ---
+
+###### day 5
+
+## 🧮 ENGLISH Lecture
+- **Time:** 9:30 AM – 10:30 AM  
+- **Venue:** Room No. F-108  
+- **Professor:** Prof. **Aastik**  
+- **Remarks:** First lecture of the day, fresh mind = best time for maths.  
+
+---
+
+## ⚡ BEEE (Basic Electrical & Electronics Engineering)
+- **Time:** 10:30 AM – 11:30 AM  
+- **Venue:** Room No. F-109  
+- **Professor:** Prof. **Harpreet Kaur (EE)**  
+- **Remarks:** Foundation lecture on circuits — important for lab work later.  
+
+---
+
+## 🧮 Mathematics Lecture (Shared with CSE-E)
+- **Time:** 10:30 AM – 11:30 AM  
+- **Venue:** ME Seminar Hall  
+- **Professor:** Prof. **Rajbir Kaur**  
+- **Remarks:** Double maths back-to-back → revise the same evening to avoid pile-up.  
+
+---
+
+## ⚗️ Chemistry Lecture
+- **Time:** 11:30 AM – 12:30 PM  
+- **Venue:** Room No. F-109  
+- **Professor:** Prof. **Ranvir Kaur (EE)**  
+- **Remarks:** Basics of chemistry in engineering — carry your notes.  
+
+---
+
+✨ **Pro-Tip for the Day:**  
+Since you’re getting **2 maths lectures + chemistry together**, keep a **separate notebook for practice problems** and revise in the evening. This way, you’ll stay ahead and avoid last-minute stress before exams.  
+
