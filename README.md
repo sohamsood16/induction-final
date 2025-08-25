@@ -84,11 +84,55 @@ She discussed:
   - **Physical Needs**  
   - **Right Understanding**  
   - **Relationships**  
-- Encouraged introspection to improve productivity and balance in life.  
+- Encouraged introspection to improve productivity and balance in life.
+- This **introspection activity** helped us analyze our routine and encouraged us to make changes so that we can derive the **maximum positive output from each day**.  
+
+The session emphasized that **Universal Human Values (UHV)** in college education aim to foster **ethical, moral, and holistic development** in students. These values—truth, love, compassion, respect, responsibility, and non-violence—are universal principles that go beyond culture or religion, guiding us toward harmonious living.  
+
+### Benefits of UHV in Education:  
+- Students are encouraged to **explore their aspirations**.  
+- They learn to **develop empathy and compassion**.  
+- They can make **value-based decisions** for personal growth and social well-being.  
+
+Ultimately, UHV aims to nurture students into **responsible, compassionate, and ethically grounded individuals** who contribute positively to society.  
+
+---
+
+## 🌟 Day 4 – Reflection  
+
+The day began with a **positive energy**.  
+
+### First Lecture: Chemistry (Prof. Rajvir Kaur)  
+- Introduced the **curriculum and exam pattern**.  
+- Motivated us to view our academic journey as an **adventurous experience**.  
+- Encouraged us to focus not only on academics but also on **practical skills** and overall personality development.  
+
+### Peer-to-Peer Class: Programming (Ms. Taranpreet)  
+- Covered the **basics of programming**.  
+- Shared insights about **college culture and resources**.  
+- Gave us a sense of **confidence and curiosity** to dive into coding.  
+
+We were free by **11:30 AM**, after which we had a short break.  
+
+### Post-Break Session: Universal Human Values (Dr. Priya Darshini)  
+- Explained how UHV is the **foundation of holistic and meaningful life**.  
+- Discussed timeless values such as **truth, love, compassion, respect, justice, non-violence, and responsibility**.  
+- Highlighted the importance of aligning **thoughts, actions, and aspirations** with values that promote **harmony, empathy, and sustainable living**.  
+- Reminded us that education is not just about **academic excellence**, but also about **emotional intelligence, ethical decision-making, and social responsibility**.  
+
+---
+
+## ✨ Additional Insight  
+
+The consistent integration of **academic learning with value-based education** during the induction program gave us a **balanced approach**.  
+
+It reminded us that **success is not only about knowledge and skills, but also about character, relationships, and inner peace**.  
+
+The day ended on a **hopeful note**, inspiring us to approach the coming days with **fresh motivation and clarity**.  
 
 ---
 
 ## 🌟 Reflection  
-The **first three days** of induction at GNDEC were filled with spirituality, motivation, knowledge, and values. From blessings in the Gurudwara to expert lectures and inspiring stories, each moment strengthened my belief that this journey will not just shape my career but also my character.  
+The **first four days** of induction at GNDEC were filled with spirituality, motivation, knowledge, and values. From blessings in the Gurudwara to expert lectures and inspiring stories, each moment strengthened my belief that this journey will not just shape my career but also my character.  
 
 ---
