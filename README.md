@@ -170,7 +170,3 @@ The **first four days** of induction at GNDEC were filled with spirituality, mot
 - **Remarks:** Basics of chemistry in engineering — carry your notes.  
 
 ---
-
-✨ **Pro-Tip for the Day:**  
-Since you’re getting **2 maths lectures + chemistry together**, keep a **separate notebook for practice problems** and revise in the evening. This way, you’ll stay ahead and avoid last-minute stress before exams.  
-
