@@ -170,3 +170,16 @@ The **first four days** of induction at GNDEC were filled with spirituality, mot
 - **Remarks:** Basics of chemistry in engineering — carry your notes.  
 
 ---
+
+###### Day 6  
+
+The sixth day of our induction program began with a **BEEE lecture** from **9:30 AM to 10:30 AM**. The lecture introduced us to the fundamentals of electrical and electronics engineering, helping us build the base for future concepts.  
+
+After this, we attended a **peer-to-peer coding class** conducted by **Taran ma’am**. The session was interactive and allowed us to learn coding concepts in a collaborative way, which made the learning process easier and more engaging.  
+
+Following the break, all students assembled in the **auditorium for an interactive session** conducted by **Sr. Guru Charan Singh Garewal**, a respected member of the **NSET Trust**. He began by mentioning the name of the college and stressed the importance of remembering the **name of our parents, our village, and our country** with pride. Unlike a traditional lecture, his talk felt more like a conversation, which kept everyone attentive and connected.  
+
+He emphasized that **education is a bridge** that connects us to opportunities, values, and personal growth. He also stated that a **good institution should never treat education as a business**, but instead as a **noble service to society**. Furthermore, he highlighted the significance of having **dedicated professors**, who play an important role in shaping the future of students. Towards the end of his session, he left us with a strong message: **success has no shortcuts**. He warned against the mindset of seeking “Canada without study,” reminding us that true progress comes only through **hard work, sincerity, and continuous learning**.  
+
+The day concluded with an **introduction session of the CML Club** by **Lakhwinder Sir**. During this session, he introduced us to the **SWAYAM NPTEL portal** and explained how it provides access to a variety of courses. He encouraged us to **enroll in at least one course**, as it would help us expand our knowledge and enhance our skills beyond the classroom.  
+
