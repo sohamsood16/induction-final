@@ -1,4 +1,4 @@
-# induction- Soham sood (cse)
+# INDUCTION REPORT:- SOHAM SOOD (cse F1)
 # 🎓 Induction Journey – GNDEC Ludhiana  
 
 ## 📅 Day 1 – Starting of the New Journey  
