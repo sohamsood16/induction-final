@@ -137,7 +137,7 @@ The **first four days** of induction at GNDEC were filled with spirituality, mot
 
 ---
 
-###### day 5
+## DAY 5
 
 ## 🧮 ENGLISH Lecture
 - **Time:** 9:30 AM – 10:30 AM  
@@ -171,7 +171,7 @@ The **first four days** of induction at GNDEC were filled with spirituality, mot
 
 ---
 
-###### Day 6  
+## DAY-6  
 
 The sixth day of our induction program began with a **BEEE lecture** from **9:30 AM to 10:30 AM**. The lecture introduced us to the fundamentals of electrical and electronics engineering, helping us build the base for future concepts.  
 
@@ -181,5 +181,78 @@ Following the break, all students assembled in the **auditorium for an interacti
 
 He emphasized that **education is a bridge** that connects us to opportunities, values, and personal growth. He also stated that a **good institution should never treat education as a business**, but instead as a **noble service to society**. Furthermore, he highlighted the significance of having **dedicated professors**, who play an important role in shaping the future of students. Towards the end of his session, he left us with a strong message: **success has no shortcuts**. He warned against the mindset of seeking “Canada without study,” reminding us that true progress comes only through **hard work, sincerity, and continuous learning**.  
 
-The day concluded with an **introduction session of the CML Club** by **Lakhwinder Sir**. During this session, he introduced us to the **SWAYAM NPTEL portal** and explained how it provides access to a variety of courses. He encouraged us to **enroll in at least one course**, as it would help us expand our knowledge and enhance our skills beyond the classroom.  
+The day concluded with an **introduction session of the CML Club** by **Lakhvir Sir**. During this session, he introduced us to the **SWAYAM NPTEL portal** and explained how it provides access to a variety of courses. He encouraged us to **enroll in at least one course**, as it would help us expand our knowledge and enhance our skills beyond the classroom.  
+
+
+# 🌟 INDUCTION PROGRAM – DAY 7  
+
+The seventh day of our induction program was yet another blend of **learning, exploration, and interaction**.  
+
+---
+
+## 🎥 Digital Marketing Club with Dr. Amit Kamra  
+The day began at **9:30 AM** with a lecture by **Dr. Amit Kamra**, the in-charge of the **Digital Marketing Club (DMC)**.  
+- He introduced us to the **official social media channels** of the college.  
+- We were given an exciting task — to create a **documentary on the campus**, which would serve as the **entry ticket for freshers** into the club.  
+- Dr. Kamra also showcased the amazing work done by his previous students and motivated us by explaining how joining DMC could help us **grow our creativity and digital skills**.  
+
+The session ended at **10:30 AM**, leaving us inspired and curious.  
+
+---
+
+## 🏫 Student Welfare with Dr. Parminder Singh  
+Next, we had a session with **Dr. Parminder Singh**, Dean of Student Welfare.  
+- He familiarized us with the **facilities of the college** — mess, hostel, library, computer center, and sports complexes.  
+- He also highlighted **extracurricular activities** such as **NSS, Student Council, and various scholarships** available to students.  
+
+This session was truly insightful as it gave us a **broader picture of student life** beyond academics.  
+
+---
+
+## 📜 Code of Conduct with Dr. Randhir  
+Following this, **Dr. Randhir Sir** addressed us in the auditorium on the **Code of Conduct**.  
+He guided us on how a student should maintain discipline, values, and decorum during college life. The lecture was both **informative and thought-provoking**.  
+
+---
+
+## ☕ Break Time  
+After these engaging sessions, we had a refreshing break to recharge ourselves.  
+
+---
+
+## 🔬 Chemistry & Peer-to-Peer Sessions  
+Post-break, the schedule shifted towards academics:  
+- A **Chemistry lecture** gave us a glimpse into the upcoming syllabus.  
+- This was followed by a **Peer-to-Peer (P2P) Chemistry session**, which turned out to be very engaging. Through P2P discussions, we learned new concepts in an **interactive and friendly manner**.  
+
+---
+
+## 🌈 Reflection  
+Since these were the **induction days**, the focus was not on heavy academics but on helping us **adapt to the campus, its culture, and its people**. Day 7 felt like a **perfect balance of knowledge, opportunities, and bonding**.  
+
+---
+
+✨ *Each day of induction is like a new chapter of discovery, and Day 7 made us realize how many doors are open for us — both in academics and beyond!*  
+
+
+# 🏁 Conclusion – My Induction Journey at GNDEC  
+
+The **seven days of induction** at Guru Nanak Dev Engineering College, Ludhiana, have been nothing less than a **transformational experience**. From the very first morning at the **Gurudwara Sahib**, where I sought divine blessings, to the engaging lectures, interactive peer sessions, and inspirational talks by professors and alumni — each day shaped me with new learning and fresh motivation.  
+
+This journey was not just about **academic introductions** but also about:  
+- **Discovering values** that guide a meaningful life.  
+- **Exploring opportunities** beyond classrooms through clubs, scholarships, and extracurricular activities.  
+- **Building connections** with peers and mentors who will walk with us throughout this journey.  
+- **Developing confidence** to balance academics, skills, and character-building.  
+
+The induction made me realize that **engineering is not just about books, labs, and exams**, but about becoming a **responsible, disciplined, and value-driven individual** who contributes positively to society.  
+
+As I step forward into the next four years of my college life, I carry with me the lessons of these seven days:  
+- To stay **curious** like a learner.  
+- To remain **disciplined** like a professional.  
+- To stay **grounded** like a human being.  
+
+🌟 *This induction has laid the foundation of my GNDEC journey, and I am excited to transform these beginnings into milestones of success, growth, and self-discovery.*  
+
+
 
